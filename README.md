@@ -1,4 +1,4 @@
-## EU AMO O BRENO, GOSTO DE DAR O CU
+
 
 <!--
 **mariaeduarda804/mariaeduarda804** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
